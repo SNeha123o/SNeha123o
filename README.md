@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **snehagupta192003@gmail.com**
 
-- ⚡ Fun fact **I am serious and chill at same time**
+- ⚡ Fun fact **I can be serious and chill at same time**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
